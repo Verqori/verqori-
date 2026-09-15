@@ -8,6 +8,9 @@ angel ଘ(੭*ˊᵕˋ)੭* ̀ˋ
 
 
 
+
+
+
          I have roblox it's verqori 😃
 
     likes mob verity froggydude and twixxle
