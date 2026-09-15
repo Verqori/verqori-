@@ -7,8 +7,11 @@ angel ଘ(੭*ˊᵕˋ)੭* ̀ˋ
      I like to draw and some thing or smth 
 
 
-
-
+                      
+🛸　　　 　🌎　°　　🌓　•　　.°•　　　 ✯
+　　　★　*　　　　　°　　　　🛰 　°·　　                           🪐
+.　　　•　° ★　•  ☄
+▁▂▃▄▅▆▇▇▆▅▄▃▁
 
 
          I have roblox it's verqori 😃
